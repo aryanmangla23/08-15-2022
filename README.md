@@ -1,1 +1,9 @@
 # 08-15-2022
+
+Previous [Diary](https://aryanmangla23.github.io/08-14-2022/)
+
+Next [Diary](https://aryanmangla23.github.io/08-16-2022/)
+
+I woke up from a very interesting dream (I had only 1 dream prior of this 1 during summer, so only 2 dreams in the span of summer). I was driving russell back home and my parents texted me why i am not home yet even though i said ill be back in 2.5 hours. Then my dad was calling me and told me u can't keep adding the time you are outside. Then I was pissed and said "I only say 2.5 hours cuz ik that you won't letme go if it is 3 hours. So, I have to lie to even get out of the house then change hte time" Which is true btw lol. Then my dad said come home rn, and so I quickly dropped russell to his home then when putting the maps back to my home it said 29 minutes drive, which first of all makes 0 sense cuz it's like 15 minuted drive from his house to mine. K wtvr, so I thought I was screwed in my dream, so I started speeding 50+ miles and saw there were slow cars in front of me, and i looked at the opposite lane on my left where there were no cars driving in the opposing lane. So, I quickly went on that opposing direction lane and then sped up infront of the car and went back to the correct direction lane. And I did this like 3x, and then the 4th time a car was headed down on the opposing direction lane and I didn't notice it. So, I swerved the car and got into some car crash. And my imaginary body got thrown out of the windshield. And while my body was flyign out of the windshield, I like went through someone else's memories. And that person was Priscilla reading a book (prbly like current time), Then a younger Priscilla crying in various areas like in her bed and bathroom (past). Then, I immediately snapped out of the dream after that. 
+
+That was very interesting...
