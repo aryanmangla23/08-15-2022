@@ -14,3 +14,7 @@ Am I overprotective over my sister? She definetely pushes me away a lot of time,
 
 Obsessed with this [song](https://open.spotify.com/track/7FdRvf7a9iE5uNWXWYuCzz?si=a852254295a04716)
 
+Uk that feeling when you have so much emotion but you wish u didnt. Dats wat im feeling rn. bruhhhhhhhhhhhhhhhhhh ffffffffffffffff gg go next life. Hesitation. Feeling of Hell in Heaven. Bruh this fucking sucks. 
+
+Why does 8 letters have so many MEANING. like Ik wat it is intended to be, but I interpret differently. There are so many interpretations and different meanings. There is so much [more](https://open.spotify.com/track/6UyqJJUwOrtop3YB8eruGR?si=5be8244daee2479c). One lyric from this song reminded me of someone.
+
